@@ -20,4 +20,13 @@ parties for example seek profit in other areas. These groups will still have
 the power, will, and means to influence businesses with significant 
 consequences.
 
-The essence of business is 
+The essence of business is the meeting of two independent, critical wills,
+each trying to find terms which benefit them. Business if fundamentally an
+interactive social process. Business is thus a process of contiuous mutual
+adaptation, of give and take, move and countermove. It is critical to keep in
+mind that the actors are not inanimate objects to be acted upon but independent
+and animate forces with their own objectives and plans. While we try to
+influence other actors, they resist us and seek to influence us. Appreciating
+this dynamic interplay between human wills is essential to understanding the
+fundamental nature of business.
+
